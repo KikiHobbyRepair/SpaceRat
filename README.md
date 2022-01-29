@@ -6,6 +6,7 @@ NOTE: This is still a work in progress project!!!
 
 Link to the video: https://youtu.be/68EapQbDBOc
 
+If you find my work useful and valuable you can support the channel on the following link: https://www.buymeacoffee.com/kikihobbyrepair
+
 ![pic](https://user-images.githubusercontent.com/97908564/150579879-396b4875-c7b2-4d78-9fc6-71ccf0a5321b.jpg)
 
-If you find my work useful and valuable you can support the channel on the following link: https://www.buymeacoffee.com/kikihobbyrepair
